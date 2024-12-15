@@ -6,7 +6,7 @@ I’m currently pursuing **FSC Pre-Medical** from **Punjab College** and I have 
 
 ### 🧬 My Academic Journey:
 - **Current Studies**: FSC Pre-Medical at **Punjab College**
-- **Schooling**: Completed **O-Levels** from **Sanai School**, focusing on science subjects.
+- **Schooling**: Completed **Matric** from **Sanai School**, focusing on science subjects.
 
 ---
 
